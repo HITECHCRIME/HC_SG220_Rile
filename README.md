@@ -32,6 +32,7 @@ into life into life int
 gassed up dark shades rolling down on farce
 these blessed cunts - no remorse shunning done
 riled up tricks trapped into feeling scars 
+to feeling scarred
 
 ya messed with giants counting minutes till i'm gone
 
