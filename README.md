@@ -47,3 +47,27 @@ let me know your struggles wanna know what's been bothering your vibes
 ## Short Cinematic Film
 
 ## Miscellaneous Notes
+
+/// Cinematic Narrative Universe of @hitechcrime | Audiovisual Microlabel⁣⁣
+⁣⁣
+/// DIRECTOR OPERATIVE @mothnode⁣⁣
+⁣
+/// You might have mistaken my intentions. You might have taken my presence for granted. Now all I have is the encompassing digital darkness brushing against me with gentle tingling of the nerves recognizing cyberdeck input. From here I will plan my revenge and carefully observe your steps.
+⁣
+/// True agents of Hitech Crime comment with ]|[ symbol underneath to your show your flair. Stay in contact with the HQ.⁣⁣
+⁣⁣
+/// TARGET MOTHNODE Rile
+/// STATUS_ Song Prototype HCSG220
+⁣⁣
+/// BEAT Yung Venxm
+
+/// LYRICAL INSIGHT_⁣⁣
+
+gassed up dark shades 
+rolling down on farce
+these blessed grunts
+no remorse shunning done
+riled up tricks trapped
+into feeling scars
+
+]|[
